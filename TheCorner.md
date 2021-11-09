@@ -27,3 +27,8 @@ from continuing, especially by withdrawing financial support. During the worst o
 in Lan Kwai Fong pulled the plug, which means the owners decided not to continue their businesses.
 ```
 #### Reference: https://hd.stheadline.com/news/columns/126/20211102/954613/專欄-又中又英-Night-after-night
+
+## Herbert 2021.11.6
+  The passage were talking about the manslaughter .When someone dead, It is a real attractive new for the public. In my book, it is a normal thing in the country that allow guns legally. Despite the fake one, the first thing I noticed was the gun! When i was younger, I want a real one. Not for killing someone, I just want hold it tight feeling the real power it bring to me or hide it somewhere in my house. It make me feel safe. Why SAFE? How can we explain this violent thing could bring safe? Having a gun means having power in your own hands. You make your own decision. You say the word ! We have been told not carry anything looks dangerous by community organization.  To prevent violent revolution? There is still a long way to go on the road to democracy.
+
+
