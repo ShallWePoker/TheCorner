@@ -1,7 +1,7 @@
 ## <center>The Corner</center>
 
-#### Date: 2021-11-05 
-#### Article of this week:
+#### Date: 2021-11-05
+##### Article of this week:
 ```
 Night after night
    --- Michael Chugani 褚簡寧
@@ -26,18 +26,29 @@ to return to the US. If you pull the plug on something, it means to suddenly end
 from continuing, especially by withdrawing financial support. During the worst of the pandemic last year many bars 
 in Lan Kwai Fong pulled the plug, which means the owners decided not to continue their businesses.
 ```
-#### Reference: https://hd.stheadline.com/news/columns/126/20211102/954613/專欄-又中又英-Night-after-night
+##### Reference: https://hd.stheadline.com/news/columns/126/20211102/954613/專欄-又中又英-Night-after-night
 
-#### Herbert 2021.11.6
+##### Herbert 2021.11.6
 
   The passage was talking about the manslaughter. When someone dead, normally It would be a real shocking news among the public. In my book, it is a relatively normal thing in the country that allow guns legally. Although it was a fake gun, the first thing I noticed was the gun! When I was younger, I wanted a real gun, not for killing someone, but for feeling the real power it could bring me when I hold it tight. Or hide it somewhere in my house. It make me feel safe. Why SAFE? How can we explain this violent thing could bring safe? Having a gun means having power in your own hands. You make your own decision. You say the word ! We have been told do not carry anything looks dangerous by community organization. To prevent violent revolution? There is still a long way to go on the road to democracy.
 
 
-#### Corrado Lo 2021.11.09
+##### Corrado Lo 2021.11.09
 
   We have been reflecting on Dr L's resignation night after night recently. 
   What could possibly pull the trigger of his resignation still remains 
   a big mystery. Has Dr L pulled the plug of the cooperation between the company
   and the organization? We can only make a wild guess that cannot be told here.
   To me, nevertheless, I have got nothing to say but I miss him very much.
+
+#### Date: 2021-11-15
+
+##### Article of this week: 
+```
+   expert from SPARTA'S LAST STAND
+   passages 1 to 3; from "In 480 BC Xerxes," to "numberical superiority."
+
+```
+##### Reference: BBC *HISTORY* magazine, november 2020.
+
 
