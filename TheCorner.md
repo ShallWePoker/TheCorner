@@ -64,3 +64,8 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 
 ##### Reference: https://www.pcgamer.com/the-metaverse-is-bullshit/
 
+##### Herbert 2021-11-25
+   After reading this passage, I learned some information about metaverse , blockchain , brain computer interfaces and some wild new shit.I do not entirely agree with what the author mentioned about metaverse. He put the human actual feeling and what you feeling in metaverse completely separate. In my point of view, in metaverse world, the virtual world is more real than present Internet. Its the massive transformation of the way we feel in the virtual world, from watching on screen to living in a tangible virtual world. Hope to play metaverse soon!
+
+##### Corrado Lo 2021-11-25
+   As I see it, metaverse as a fully interactive virtual world may has a very long way to go; metaverse is not just about the software, which is delicately decorated as genuine as the reality; but this concept is also about the hardware technologies, the most famous among which are VR, AR and the late neuralink   experimental devices; hardware technologies should be the bottleneck of metaverse now. Nevertheless, I sincerely wish I could experience metaverse for real before I am too old.
