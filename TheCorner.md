@@ -69,3 +69,12 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 
 ##### Corrado Lo 2021-11-25
    As I see it, metaverse as a fully interactive virtual world may has a very long way to go; metaverse is not just about the software, which is delicately decorated as genuine as the reality; but this concept is also about the hardware technologies, the most famous among which are VR, AR and the late neuralink   experimental devices; hardware technologies should be the bottleneck of metaverse now. Nevertheless, I sincerely wish I could experience metaverse for real before I am too old.
+
+#### Date: 2021-11-28
+
+##### Article of this week:
+```
+   Jony Ive’s first major design since leaving Apple isn’t what you’d expect
+```
+
+##### Reference: https://www.fastcompany.com/90693444/jony-ives-first-major-design-since-leaving-apple-isnt-what-youd-expect
