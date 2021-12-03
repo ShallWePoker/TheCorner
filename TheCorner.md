@@ -78,3 +78,6 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 ```
 
 ##### Reference: https://www.fastcompany.com/90693444/jony-ives-first-major-design-since-leaving-apple-isnt-what-youd-expect
+
+##### Herbert 2021-12-03
+   "That paper seal looks expensive." Jony Ive has a lot of impact on modern Apple product design. In truth, I consider Apple's typeface how to optimize the user experience. The good design in what extent can promote a product. I ask myself, would I be willing to purchase an electronic product just because of the typeface. The answer is no. But from another perspective , a product not only has superior quality but also subtle details. Then this product is different. Details determine success or failure. We should make every decision judiciously. Let's resonates with perfectionism!
