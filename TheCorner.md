@@ -81,3 +81,6 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 
 ##### Herbert 2021-12-03
    "That paper seal looks expensive." Jony Ive has a lot of impact on modern Apple product design. In truth, I consider Apple's typeface how to optimize the user experience. The good design in what extent can promote a product. I ask myself, would I be willing to purchase an electronic product just because of the typeface. The answer is no. But from another perspective , a product not only has superior quality but also subtle details. Then this product is different. Details determine success or failure. We should make every decision judiciously. Let's resonates with perfectionism!
+
+##### Corrado Lo 2021-12-08
+   Last Sunday night, I was invited to a chorus concert at Baoli Theater, which brought me an uncomfortable sense of cognitive dissonace; the choir sang songs praising C^2P accompanied by Shenzhen City Philharmonic Orchestra; I have heared of and sang many of these songs ever since my childhood; yet I've never imagined them to be acommpanied by a symphony orchestra; being a big fan of symphonies by Bach, Mozart, Beethoven, etc., I would like to attend concerts featuring their pieces more often.
