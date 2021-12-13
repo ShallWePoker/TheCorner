@@ -84,3 +84,13 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 
 ##### Corrado Lo 2021-12-08
    Last Sunday night, I was invited to a chorus concert at Baoli Theater, which brought me an uncomfortable sense of cognitive dissonace; the choir sang songs praising C^2P accompanied by Shenzhen City Philharmonic Orchestra; I have heared of and sang many of these songs ever since my childhood; yet I've never imagined them to be acommpanied by a symphony orchestra; being a big fan of symphonies by Bach, Mozart, Beethoven, etc., I would like to attend concerts featuring their pieces more often.
+
+
+#### Date: 2021-12-12
+
+##### Article of this week:
+```
+   Unlocking the secrets of self-awareness
+```
+
+##### Reference: https://www.science.org/doi/10.1126/science.abh2030
