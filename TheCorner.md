@@ -99,9 +99,21 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 ##### Article of this week:
 ```
    eat like a wolf
-   Many of you will know I love pizza although I seldom indulge myself nowadays. I indulge in pizza every few months but limit myself to two slices with red wine or martinis. To indulge yourself means to allow yourself to have something enjoyable. I don’t indulge in pizza often because it’s unhealthy. New York City is famed (well-known) for pizzas. There are numerous restaurants and take-out shops that sell different types of pizzas. Most take-out pizza places have tables and chairs outside. There is a take-out pizza shop with outdoor seating below my Manhattan apartment. Every time I walk past I see people wolfing down a large slice of pizza.
-   　　To wolf down something means to eat it very fast, greedily, or hungrily. The expression “wolf down” comes from the saying “eat like a wolf”. Last week I went with a friend to Little Italy, which is in downtown Manhattan adjacent to (next to) Chinatown. It is called Little Italy because many Italian immigrants settled in Lower Manhattan in the 1880s, bringing with them Italian culture and cuisine. Chinatowns across the US started the same way when Chinese immigrants settled in many districts. At first, Manhattan’s Little Italy was quite big but it is now smaller than Chinatown. My friend and I went to Chinatown’s best bakery to buy pineapple buns to take home. I love pineapple buns with milk tea for breakfast. The shop assistants all spoke Cantonese and were surprised I could speak it too.
-   　　After buying pineapple buns we walked to Little Italy for dinner. We found an Italian restaurant called Ristorante Da Gennaro which also had outdoor seating. It was cold but we sat outside. Outdoor tables in Manhattan are covered and have heating lamps. We started with a Merlot red wine and Bruschetta, an Italian appetizer of toasted bread with chopped tomatoes, cilantro, and olive oil. My friend and I had pizza, which paired (matched) well with Merlot. You will like Little Italy if you visit Manhattan.   
+      Many of you will know I love pizza although I seldom indulge myself nowadays. I indulge in pizza every few months but limit myself to two slices with
+   red wine or martinis. To indulge yourself means to allow yourself to have something enjoyable. I don’t indulge in pizza often because it’s unhealthy.
+   New York City is famed (well-known) for pizzas. There are numerous restaurants and take-out shops that sell different types of pizzas. Most take-out
+   pizza places have tables and chairs outside. There is a take-out pizza shop with outdoor seating below my Manhattan apartment. Every time I walk past I 
+   see people wolfing down a large slice of pizza.
+   　　To wolf down something means to eat it very fast, greedily, or hungrily. The expression “wolf down” comes from the saying “eat like a wolf”. Last
+   week I went with a friend to Little Italy, which is in downtown Manhattan adjacent to (next to) Chinatown. It is called Little Italy because many
+   Italian immigrants settled in Lower Manhattan in the 1880s, bringing with them Italian culture and cuisine. Chinatowns across the US started the same
+   way when Chinese immigrants settled in many districts. At first, Manhattan’s Little Italy was quite big but it is now smaller than Chinatown. My friend
+   and I went to Chinatown’s best bakery to buy pineapple buns to take home. I love pineapple buns with milk tea for breakfast. The shop assistants all
+   spoke Cantonese and were surprised I could speak it too.
+   　　After buying pineapple buns we walked to Little Italy for dinner. We found an Italian restaurant called Ristorante Da Gennaro which also had outdoor
+   seating. It was cold but we sat outside. Outdoor tables in Manhattan are covered and have heating lamps. We started with a Merlot red wine and
+   Bruschetta, an Italian appetizer of toasted bread with chopped tomatoes, cilantro, and olive oil. My friend and I had pizza, which paired (matched) well
+   with Merlot. You will like Little Italy if you visit Manhattan.   
 ```
 ##### Reference: https://hd.stheadline.com/news/columns/126/20211223/963747/專欄-又中又英-eat-like-a-wolf
 
