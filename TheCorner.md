@@ -119,3 +119,15 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 
 ##### Corrado Lo 2022-01-17
    Being a huge fan of sweet soft drinks, I have tried almost all sorts of soft drinks in the super markets, amongs which coca cola is my favorite. Nowadays I seldom indulge myself with cokes anymore, except for occasions when nuna comes to my house and makes hot spicy huoguo. Sweet soft drinks are tasty; but they contain too much sugar. I hate all of the popular milk teas in China, such as coco, yidiandian, etc.; everytime I take a single sip of these milk teas, I would get a slight headache; these milk teas may have been added sugar of poor quality.
+
+#### Date: 2022-01-28
+##### Article of this week:
+```
+   ups and downs
+   Festivals come once a year, such as Christmas, Easter, and Lunar New Year. People celebrate with family gatherings, special meals, and holidays. But for me festivals are also a time to reflect which, when used this way, means to think deeply about something. I think about the ups and downs of the past twelve months and what is in store for me in the next twelve months. The expression "ups and downs" means a mixture of good and bad things that happen. If something is in store for you, it means it will happen to you in the future. Even though I don't know what's in store for me I like to celebrate festivals.
+
+   Every Christmas I listen to Christmas carols, eat turkey, and watch the movie version of A Christmas Carol by Charles Dickens. I sometimes go to church for midnight mass even though I am not religious. During Easter I don't eat meat on Good Friday because that's the day to commemorate the crucifixion of Jesus. I don't eat meat on Diwali, the Indian New Year. During Lunar New Year I like to eat a vegetarian dish made with mushrooms, tofu puffs, vegetables, and other ingredients. It is my favourite Chinese dish but I don't know how to make it! Sometimes my Hong Kong friends make it for me but I haven't eaten it for a long time.
+
+   Every Lunar New Year's Eve I go to the Victoria Park flower fair. That is impossible this year. I now live in Manhattan and there are no flower fairs anyway. Chief Executive Carrie Lam Cheng Yuet-ngor cancelled them because of Omicron. She has also shut down bars and gyms for several weeks and restaurants after 6pm. The Airport Authority has banned the transit of flight passengers from over 100 countries. This affects many air passengers who want to spend Lunar New Year with their families. Will the Year of the Tiger bring good luck to Hong Kong? Your guess is as good as mine, which means I don't know.
+```
+##### Reference: https://hd.stheadline.com/news/columns/126/20220120/967692/專欄-又中又英-Ups-and-downs-Michael-Chugani-褚簡寧
