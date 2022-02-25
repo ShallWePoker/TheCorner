@@ -120,6 +120,9 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 ##### Corrado Lo 2022-01-17
    Being a huge fan of sweet soft drinks, I have tried almost all sorts of soft drinks in the super markets, amongs which coca cola is my favorite. Nowadays I seldom indulge myself with cokes anymore, except for occasions when nuna comes to my house and makes hot spicy huoguo. Sweet soft drinks are tasty; but they contain too much sugar. I hate all of the popular milk teas in China, such as coco, yidiandian, etc.; everytime I take a single sip of these milk teas, I would get a slight headache; these milk teas may have been added sugar of poor quality.
 
+##### Herbert 2022-02-20
+   When it comes to indulging myself, I am the master. In my childhood, I love chocolate . I could eat a whole box of chocolates unconsciously every night when I watched TV . Normally, of course, eating so much chocolate will make me fatter and fatter. But luckily for me, I don't have a problem with obesity. It probably has much to do with my love of sports at that time. Basketball consumes a lot of energy from my little body. Nowadays, without sport, my belly is getting a big bump!
+
 #### Date: 2022-01-28
 ##### Article of this week:
 ```
@@ -131,3 +134,13 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
    Every Lunar New Year's Eve I go to the Victoria Park flower fair. That is impossible this year. I now live in Manhattan and there are no flower fairs anyway. Chief Executive Carrie Lam Cheng Yuet-ngor cancelled them because of Omicron. She has also shut down bars and gyms for several weeks and restaurants after 6pm. The Airport Authority has banned the transit of flight passengers from over 100 countries. This affects many air passengers who want to spend Lunar New Year with their families. Will the Year of the Tiger bring good luck to Hong Kong? Your guess is as good as mine, which means I don't know.
 ```
 ##### Reference: https://hd.stheadline.com/news/columns/126/20220120/967692/專欄-又中又英-Ups-and-downs-Michael-Chugani-褚簡寧
+
+#### Date: 2022-02-25
+##### Article of this week:
+```
+   What I Have Lived For
+         -- Bertrand Russell
+   Three passions, simple but overwhelmingly strong, have governed my life: the longing for love, the search for knowledge, and unbearable pity for the suffering of mankind.  These passions, like great winds, have blown me hither and thither, in a wayward course, over a great ocean of anguish, reaching to the very verge of despair.  I have sought love, first, because it brings ecstasy – ecstasy so great that I would often have sacrificed all the rest of life for a few hours of this joy.  I have sought it, next, because it relieves loneliness that terrible loneliness in which one shivering consciousness looks over the rim of the world into the cold unfathomable lifeless abyss.  I have sought it finally, because in the union of love I have seen, in a mystic miniature, the prefiguring vision of the heaven that saints and poets have imagined.  This is what I sought, and though it might seem too good for human life, this is what at last I have found.  With equal passion I have sought knowledge.  I have wished to understand the hearts of men.  I have wished to know why the stars shine.  And I have tried to apprehend the Pythagorean power by which number holds sway above the flux. A little of this, but not much, I have achieved. Love and knowledge, so far as they were possible, led upward toward the heavens.  But always pity brought me back to earth.  Echoes of cries of pain reverberate in my heart.  Children in famine, victims tortured by oppressors, helpless old people a burden to their sons, and the whole world of loneliness, poverty, and pain make a mockery of what human life should be.  I long to alleviate this evil, but I cannot, and I too suffer.  This has been my life.  I have found it worth living, and would gladly live it again if the chance were offered me.
+```
+##### Reference: *The Prologue to Bertrand Russell’s Autobiography*
+
