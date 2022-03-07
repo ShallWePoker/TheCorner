@@ -144,3 +144,5 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 ```
 ##### Reference: *The Prologue to Bertrand Russell’s Autobiography*
 
+##### Herbert 2022-02-26
+   Love brings ecstasy – ecstasy so great that I would often have sacrificed all the rest of life for a few hours of this joy. I can not agree it more. When you find something beyond your excited threshold, social moral constraints or stereotypes of other people cannot stop you anymore, that is what going to happen. Love and knowledge, so far as they were possible,led upward toward the heavens. But always pity brought me back to earth. Form Buddhism, people are born to suffer. I am not a saints. Most of time , I just thinking of myself. Children in famine, victims tortured by oppressors and such of things are beyond my ability. Nobody wants to see it happen . Make our family a good life, bring happiness for the people around is all we can do! Live in reality!
