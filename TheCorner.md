@@ -146,3 +146,16 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
 
 ##### Herbert 2022-02-26
    Love brings ecstasy – ecstasy so great that I would often have sacrificed all the rest of life for a few hours of this joy. I can not agree it more. When you find something beyond your excited threshold, social moral constraints or stereotypes of other people cannot stop you anymore, that is what going to happen. Love and knowledge, so far as they were possible,led upward toward the heavens. But always pity brought me back to earth. Form Buddhism, people are born to suffer. I am not a saints. Most of time , I just thinking of myself. Children in famine, victims tortured by oppressors and such of things are beyond my ability. Nobody wants to see it happen . Make our family a good life, bring happiness for the people around is all we can do! Live in reality!
+
+#### Date: 2022-04-02
+##### Article of this week:
+```
+   When you grow up, you tend to get told that the world is the way it is and your life is just to live your life inside the world, try not to bash into the walls too much, try to have a nice family life, have fun, save a little money.
+
+   That’s a very limited life. Life can be much broader, once you discover one simple fact, and that is that everything around you that you call life was made up by people that were no smarter than you. And you can change it, you can influence it, you can build your own things that other people can use. Once you learn that, you’ll never be the same again.
+
+   And the minute that you understand that you can poke life and actually something will, you know if you push in, something will pop out the other side, that you can change it, you can mold it. That’s maybe the most important thing. It’s to shake off this erroneous notion that life is there and you’re just gonna live in it, versus embrace it, change it, improve it, make your mark upon it.
+
+   I think that’s very important and however, you learn that, once you learn it, you’ll want to change life and make it better, cause it’s kind of messed up, in a lot of ways. Once you learn that, you’ll never be the same again.
+```
+##### Reference: *[Steve Jobs on The Most Important Thing in Life](https://fs.blog/steve-jobs-the-most-important-thing/)*
