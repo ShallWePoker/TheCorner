@@ -159,3 +159,6 @@ in Lan Kwai Fong pulled the plug, which means the owners decided not to continue
    I think that’s very important and however, you learn that, once you learn it, you’ll want to change life and make it better, cause it’s kind of messed up, in a lot of ways. Once you learn that, you’ll never be the same again.
 ```
 ##### Reference: *[Steve Jobs on The Most Important Thing in Life](https://fs.blog/steve-jobs-the-most-important-thing/)*
+
+##### Corrado Lo 2022-04-04
+   Pioneers crawl in the darkness of loneliness and uncertainty. I feel my life ahead in the future is full of loneliness and uncertainty, even though I do not claim to a pioneer in any field; yet I am strongly curious about the game of poker and motivated on solving it optimally.
